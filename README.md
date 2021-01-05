@@ -1,1 +1,5 @@
-# Welcome to this random wiki of SA gamedev wikiness
+# Independent SA Gamedev Wiki
+
+## Frequently Asked Questions
+
+
