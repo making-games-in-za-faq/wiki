@@ -4,4 +4,4 @@
 
 
 ## Linkz
-http://www.makeindiegamesincapetown.com/ - Fun fun fun
+http://www.makeindiegamesincapetown.com/ - Verimark tier infomercial 
